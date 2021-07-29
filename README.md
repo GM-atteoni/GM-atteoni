@@ -1,4 +1,4 @@
-### Hi! I'm Giuseppe Matteoni but you can call me Pepe 👋
+### Hi! Don't blame my code, I'm always learning 🥰
 
 - 🔭 Coding at Itaú 🧡 #1 Bank in Brazil
 - 🌈 LGBTQIA+ Supporter
