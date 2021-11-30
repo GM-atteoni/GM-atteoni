@@ -1,4 +1,4 @@
-### Hi! Don't blame my code, I'm always learning 🚀
+### Hi! Don't blame my code, teach me something new 🚀
 
 - 🔭 Coding at Itaú 🧡 #1 Bank in Brazil
 - 🌈 LGBTQIA+ Supporter
